@@ -17,8 +17,8 @@ All’età di 20 anni si dedica finalmente alla sua unica ragione di vita
 
 Noah è un atleta fuori dagli 
 schemi, 
-la sua debolezza è diventata 
-un punto di forza. Le sue 
+**la sua debolezza è diventata** 
+**un punto di forza**. Le sue 
 gambe da gorilla hanno 
 mantenuto la loro 
 straordinaria potenza, ma 
