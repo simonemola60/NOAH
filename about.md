@@ -13,6 +13,8 @@ In kenya si allena senza sosta finchè non allunga le sue corte gambe
 da gorilla e sviluppa una forza elastica mai vista prima.
 All’età di 20 anni si dedica finalmente alla sua unica ragione di vita 
 “la velocità”. 
+
+
 Noah è un atleta fuori dagli 
 schemi 
 la sua debolezza è diventata 
@@ -26,6 +28,8 @@ gli permettono di correre ad
 altissime velocità e saltare 
 come mai nessuno aveva 
 fatto prima di lui.
+
+
 Non ha molte skills sociali, ha passato tutta la sua vita ad allenarsi e il suo uniuco amico 
 è il ghepardo che l’ha allenato. Passa le sue giornate ad allenarsi e l’unico momento in 
 cui incontra qualcuno è quando gareggia. E’ molto competitivo e non perde mai, quindi 
