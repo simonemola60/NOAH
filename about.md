@@ -1,6 +1,6 @@
 # NOAH
-Noah ha madre canguro e padre gorilla
-Nato in Australia 
+Noah ha madre canguro e padre gorilla.
+Nato in Australia. 
 Noah è un canguro con le gambe da gorilla
 Ha abbandonato la sua casa ed i suoi genitori in australia per 
 diventare un atleta professionista.
