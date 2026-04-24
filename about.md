@@ -8,8 +8,8 @@ diventare un atleta professionista.
 **e pesanti gambe da gorilla che lo limitavano nei movimenti.**
 Dopo molto tempo in viaggio per il mondo per cercare qualcuno che 
 lo aiutasse a risolvere il suo problema, conosce un ghepardo in 
-kenya.
-In kenya si allena senza sosta finchè non allunga le sue corte gambe 
+kenya
+dove si allena senza sosta finchè non allunga le sue corte gambe 
 da gorilla e sviluppa una forza elastica mai vista prima.
 All’età di 20 anni si dedica finalmente alla sua unica ragione di vita 
 “la velocità”. 
